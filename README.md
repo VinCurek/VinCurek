@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VinCurek
+- 👀 I’m interested in ...Water Sports, Self-Improvement Ebooks & Caps!
+- 🌱 I’m currently learning ... AI
+- 💞️ I’m looking to collaborate on ... all things legendary!
+- 😄 Pronouns: ... She/Her
